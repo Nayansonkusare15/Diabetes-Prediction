@@ -316,7 +316,7 @@ Parul University
 
 GitHub: https://github.com/Nayansonkusare15
 
-LinkedIn: https://linkedin.com/in/NayanSonkusare
+LinkedIn: [https://linkedin.com/in/NayanSonkusare](https://www.linkedin.com/in/nayan-sonkusare-a35629347/)
 
 ---
 
